@@ -1,6 +1,5 @@
 <div align="center">
   <div>
-    <img src="https://64.media.tumblr.com/8ff16f15715f95ebbffa308e80e7eee3/fc64dfe582ead904-7b/s540x810/d3e629c62cf2cd48e70accafeddd4e9fadd8f903.pnj" width="450px">
     <br /><img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="450px">
   </div>
 
