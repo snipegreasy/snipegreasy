@@ -25,9 +25,9 @@
 <br>**I am not afraid to confront or speak out to stand up for myself/others.**
 I'm in a few fandoms rn such as COD, RDR2, TWD, MW, TLOU, DYING LIGHT.
 
-Please understand that I can be clingy fast but also have times were I **need** space. I love cuddles and kisses so int!
+Please understand that I can be clingy fast and also have times were I **need** space. So respect that and we'll be fine! I love cuddles and kisses so int!
 
-Another think for the mouthwashing fandom.
+Another thing for the mouthwashing fandom.
 <br>**Jimmy cos please int w the most care.**
 <br><sub>Only because I'm semi-uncomfortable with his character.</sub>
 
