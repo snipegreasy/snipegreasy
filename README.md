@@ -24,7 +24,7 @@
 <br>Please be nice to me and respect my boundaries that i make obvious.
 <br>**I am not afraid to confront or speak out to stand up for myself/others.**
 
-<br>Jimmy cos please int w the most care.
+<br>**Jimmy cos please int w the most care.**
 <br><sub>Only because I'm semi-uncomfortable with his character.</sub>
 
  <div>
