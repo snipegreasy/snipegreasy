@@ -25,6 +25,9 @@
 <br>**I am not afraid to confront or speak out to stand up for myself/others.**
 I'm in a few fandoms rn such as COD, RDR2, TWD, MW, TLOU, DYING LIGHT.
 
+Please understand that I can be clingy fast but also have times were I **need** space. I love cuddles and kisses so int!
+
+Another think for the mouthwashing fandom.
 <br>**Jimmy cos please int w the most care.**
 <br><sub>Only because I'm semi-uncomfortable with his character.</sub>
 
@@ -33,11 +36,15 @@ I'm in a few fandoms rn such as COD, RDR2, TWD, MW, TLOU, DYING LIGHT.
   </div>
   
 **discord:** @softgreasy.
+If you need to contact me in anyway <3!
+
+OH AND BE SURE TO COLOR MY TREE! 🎄💝.
+I find the idea so cute.
 
  <div>
     <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
   </div>
-  
+
 <br><ins>**Please be patient with me,
 <br>I'm a super sweet guy when you get to know me.**</ins>
 <br><3 
