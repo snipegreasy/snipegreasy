@@ -24,8 +24,8 @@
 <br>Please be nice to me and respect my boundaries that i make obvious.
 <br>**I am not afraid to confront or speak out to stand up for myself/others.**
 
-<br>Jimmy cos **DO NOT** interact unless it's my very close friends or someone
-<br>who understands what Jimmy has done. And IS **against** it.
+<br>Jimmy cos please int w the most care.
+<br><sub>Only because I'm semi-uncomfortable with his character.</sub>
 
  <div>
     <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
