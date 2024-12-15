@@ -23,6 +23,7 @@
 
 <br>Please be nice to me and respect my boundaries that i make obvious.
 <br>**I am not afraid to confront or speak out to stand up for myself/others.**
+I'm in a few fandoms rn such as COD, RDR2, TWD, MW.
 
 <br>**Jimmy cos please int w the most care.**
 <br><sub>Only because I'm semi-uncomfortable with his character.</sub>
