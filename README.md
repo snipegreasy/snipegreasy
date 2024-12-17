@@ -23,7 +23,7 @@
 
 <br>Please be nice to me and respect my boundaries that i make obvious.
 <br>**I am not afraid to confront or speak out to stand up for myself/others.**
-I'm in a few fandoms rn such as COD, RDR2, TWD, MW, TLOU, DYING LIGHT.
+I'm in a few fandoms rn such as COD, RDR2, TWD/TWD games, MW, TLOU, DYING LIGHT, COF, UNTIL DAWN, RESIDENT GYATTS, SILENT HILL. (this was a not a "few".)
 
 Please understand that I can be clingy fast and also have times were I **need** space. So respect that and we'll be fine! I love cuddles and kisses so int!
 
