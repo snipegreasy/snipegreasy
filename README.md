@@ -38,8 +38,7 @@ Another thing for the mouthwashing fandom.
 **discord:** @softgreasy.
 If you need to contact me in anyway <3!
 
-OH AND BE SURE TO COLOR MY TREE! 🎄💝.
-I find the idea so cute.
+ALSO DNI IF YOUR NAME IS KOTO OR TOXSYS. IF YOU DO BEWARE CONFRONTATION.
 
  <div>
     <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
