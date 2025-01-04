@@ -12,7 +12,7 @@
   <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
 </div>
 
-### My name is **JOHNNI/LEE**!
+### My name is **JOHNNI/LIA**!
 **C+H anytime!!**
 <br /> <sub>unless i say something differently <3.</sub>
 <br />
@@ -28,7 +28,7 @@ I'm in a few fandoms rn such as COD, RDR2, TWD/TWD games, MW, TLOU, DYING LIGHT,
 Please understand that I can be clingy fast and also have times were I **need** space. So respect that and we'll be fine! I love cuddles and kisses so int!
 
 Another thing for the mouthwashing fandom.
-<br>**Jimmy cos please int w the most care.**
+<br>**Jimmy cos please int w the most caution.**
 <br><sub>Only because I'm semi-uncomfortable with his character.</sub>
 
  <div>
