@@ -47,6 +47,7 @@ DNI IF YOUR NAME IS **KOTO** OR **TOXSYS.** IF YOU DO BEWARE OF **CONFRONTATION.
 <br><ins>**Please be patient with me,
 <br>I'm a super sweet guy when you get to know me.**</ins>
 <br><3 
+ฅ՞•ﻌ•՞ฅ
 
 
   <img src="https://64.media.tumblr.com/46d458af68b7dbbd6902e994fdf30a95/8bb084d8d148f352-42/s400x600/509b65841ba1f444c0d1363096f7e1c3af7c9b8e.jpg" width="250px">
