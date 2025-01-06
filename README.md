@@ -1,6 +1,6 @@
 <div align="center">
   <div>
-    <img src="https://64.media.tumblr.com/8dbdd3596c0c358d42c86d6fe5bbed02/8ac72bb49761ea20-6e/s1280x1920/8f8b04090b0ddaa39b1c87cc0b791d2fab880345.gifv" width="650px">
+    <img src="https://64.media.tumblr.com/253f38b1d462efd509503150929da14e/d437ab3062acdfa5-d7/s1280x1920/e3196ff6cbb44c47dc9c8671fbab6a0db47b3c1b.pnj" width="650px">
   
   </div>
 <br />
@@ -9,7 +9,7 @@
 <br />
 ‎ 
 <div>
-  <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
+  <img src="https://64.media.tumblr.com/52b5f378251f821ee366cccdfb6b1558/d437ab3062acdfa5-d6/s1280x1920/fd91da83ee4d8aa84b1a4d9dd17b5a922dc91ef7.pnj" width="500px">
 </div>
 
 ### **𝔧𝔬𝔥𝔫𝔫𝔶/𝔩𝔦𝔞**!
@@ -18,7 +18,7 @@
 <br />
  ‎ 
  <div>
-    <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
+    <img src="https://64.media.tumblr.com/52b5f378251f821ee366cccdfb6b1558/d437ab3062acdfa5-d6/s1280x1920/fd91da83ee4d8aa84b1a4d9dd17b5a922dc91ef7.pnj" width="500px">
   </div>
 
 <br>𝐏𝐥𝐞𝐚𝐬𝐞 𝐛𝐞 𝐧𝐢𝐜𝐞 𝐭𝐨 𝐦𝐞 𝐚𝐧𝐝 𝐫𝐞𝐬𝐩𝐞𝐜𝐭 𝐦𝐞, 𝐈 𝐰𝐢𝐥𝐥 𝐝𝐨 𝐭𝐡𝐞 𝐬𝐚𝐦𝐞 𝐟𝐨𝐫 𝐲𝐨𝐮.
@@ -33,7 +33,7 @@ SOMETHINF FOR THE MOUTHWASHING FANDOM!
 <br><sub>because I'm uncomfortable with his character.</sub>
 
  <div>
-    <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
+    <img src="https://64.media.tumblr.com/52b5f378251f821ee366cccdfb6b1558/d437ab3062acdfa5-d6/s1280x1920/fd91da83ee4d8aa84b1a4d9dd17b5a922dc91ef7.pnj" width="500px">
   </div>
   
 **discord:** @softgreasy.
@@ -42,7 +42,7 @@ If you need to contact me in anyway.
 DNI IF YOUR NAME IS **KOTO** OR **TOXSYS.** IF YOU DO BEWARE OF **CONFRONTATION.** If you support/friends with them feel free to BLOCK/HIDE me.
 
  <div>
-    <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
+    <img src="https://64.media.tumblr.com/52b5f378251f821ee366cccdfb6b1558/d437ab3062acdfa5-d6/s1280x1920/fd91da83ee4d8aa84b1a4d9dd17b5a922dc91ef7.pnj" width="500px">
   </div>
 
 <br><ins>**Please be patient with me,
@@ -51,9 +51,9 @@ DNI IF YOUR NAME IS **KOTO** OR **TOXSYS.** IF YOU DO BEWARE OF **CONFRONTATION.
 ฅ՞•ﻌ•՞ฅ
 
 
-  <img src="https://64.media.tumblr.com/46d458af68b7dbbd6902e994fdf30a95/8bb084d8d148f352-42/s400x600/509b65841ba1f444c0d1363096f7e1c3af7c9b8e.jpg" width="250px">
+  <img src="https://64.media.tumblr.com/764b5012b8ee845de56684f96b72c19f/d437ab3062acdfa5-32/s400x600/f3f968f02e64f31a9e3dd5f04d41fd35bd8635f1.pnj" width="250px">
 
  <div>
-    <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
-    <img src="https://64.media.tumblr.com/8dbdd3596c0c358d42c86d6fe5bbed02/8ac72bb49761ea20-6e/s1280x1920/8f8b04090b0ddaa39b1c87cc0b791d2fab880345.gifv" width="650px">
+    <img src="https://64.media.tumblr.com/52b5f378251f821ee366cccdfb6b1558/d437ab3062acdfa5-d6/s1280x1920/fd91da83ee4d8aa84b1a4d9dd17b5a922dc91ef7.pnj" width="500px">
+    <img src="https://64.media.tumblr.com/253f38b1d462efd509503150929da14e/d437ab3062acdfa5-d7/s1280x1920/e3196ff6cbb44c47dc9c8671fbab6a0db47b3c1b.pnj" width="650px">
   </div>
