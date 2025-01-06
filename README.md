@@ -12,7 +12,7 @@
   <img src="https://64.media.tumblr.com/52b5f378251f821ee366cccdfb6b1558/d437ab3062acdfa5-d6/s1280x1920/fd91da83ee4d8aa84b1a4d9dd17b5a922dc91ef7.pnj" width="500px">
 </div>
 
-### **𝔧𝔬𝔥𝔫𝔫𝔶/𝔩𝔦𝔞**!
+### **Johnny/Lia**!
 **C+H anytime!!**
 <br /> <sub>unless i say something differently <3.</sub>
 <br />
@@ -48,7 +48,7 @@ DNI IF YOUR NAME IS **KOTO** OR **TOXSYS.** IF YOU DO BEWARE OF **CONFRONTATION.
 
 <br><ins>**Please be patient with me,
 <br>I'm a super sweet guy when you get to know me.**</ins>
-<br><3 
+
 ฅ՞•ﻌ•՞ฅ
 
 
