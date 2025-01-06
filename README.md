@@ -16,6 +16,7 @@
 **C+H anytime!!**
 <br /> <sub>unless i say something differently <3.</sub>
 <br />
+  <img src="https://64.media.tumblr.com/33806a12748acf8f991d22f7b7a01dab/0bf090b1cc7d63ca-2b/s250x400/631555afcacde92753fd2a90d8c7da952897b152.gifv" width="125px">
  ‎ 
  <div>
     <img src="https://64.media.tumblr.com/52b5f378251f821ee366cccdfb6b1558/d437ab3062acdfa5-d6/s1280x1920/fd91da83ee4d8aa84b1a4d9dd17b5a922dc91ef7.pnj" width="500px">
