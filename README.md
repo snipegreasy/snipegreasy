@@ -25,11 +25,11 @@
 <br>𝐏𝐥𝐞𝐚𝐬𝐞 𝐛𝐞 𝐧𝐢𝐜𝐞 𝐭𝐨 𝐦𝐞 𝐚𝐧𝐝 𝐫𝐞𝐬𝐩𝐞𝐜𝐭 𝐦𝐞, 𝐈 𝐰𝐢𝐥𝐥 𝐝𝐨 𝐭𝐡𝐞 𝐬𝐚𝐦𝐞 𝐟𝐨𝐫 𝐲𝐨𝐮.
 <br>**I am not afraid to confront or speak out.**
 
-Fandoms im in rn!! Such as: COD, RDR2, TWD/TWD games, MW, TLOU, DYING LIGHT, COF, UNTIL DAWN, RESIDENT GYATTS, SILENT HILL, MK, ASSASSINS CREED, TF2, INDIE HORROR GAMES!! 
-(MY two favs are COD and RDR2).
+𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢𝐦 𝐢𝐧 𝐫𝐧!! 𝐒𝐮𝐜𝐡 𝐚𝐬: 𝐂𝐎𝐃, 𝐑𝐃𝐑𝟐, 𝐓𝐖𝐃/𝐓𝐖𝐃 𝐠𝐚𝐦𝐞𝐬, 𝐌𝐖, 𝐓𝐋𝐎𝐔, 𝐃𝐘𝐈𝐍𝐆 𝐋𝐈𝐆𝐇𝐓, 𝐂𝐎𝐅, 𝐔𝐍𝐓𝐈𝐋 𝐃𝐀𝐖𝐍, 𝐑𝐄𝐒𝐈𝐃𝐄𝐍𝐓 𝐆𝐘𝐀𝐓𝐓𝐒, 𝐒𝐈𝐋𝐄𝐍𝐓 𝐇𝐈𝐋𝐋, 𝐌𝐊, 𝐀𝐒𝐒𝐀𝐒𝐒𝐈𝐍𝐒 𝐂𝐑𝐄𝐄𝐃, 𝐓𝐅𝟐, 𝐈𝐍𝐃𝐈𝐄 𝐇𝐎𝐑𝐑𝐎𝐑 𝐆𝐀𝐌𝐄𝐒!! 
+(𝐌𝐘 𝐭𝐰𝐨 𝐟𝐚𝐯𝐬 𝐚𝐫𝐞 𝐂𝐎𝐃 𝐚𝐧𝐝 𝐑𝐃𝐑𝟐).
 
 
-SOMETHINF FOR THE MOUTHWASHING FANDOM!
+SOMETHING FOR THE MOUTHWASHING FANDOM!
 <br>**Jimmy cos please int w the most caution.**
 <br><sub>because I'm uncomfortable with his character.</sub>
 
@@ -40,7 +40,7 @@ SOMETHINF FOR THE MOUTHWASHING FANDOM!
 **discord:** @softgreasy.
 If you need to contact me in anyway.
 
-DNI IF YOUR NAME IS **KOTO** OR **TOXSYS.** IF YOU DO BEWARE OF **CONFRONTATION.** If you support/friends with them feel free to BLOCK/HIDE me.
+!DNI IF YOUR NAME IS **KOTO** OR **TOXSYS.** IF YOU DO BEWARE OF **CONFRONTATION.** If you support/friends with them feel free to **BLOCK** me.!
 
  <div>
     <img src="https://64.media.tumblr.com/52b5f378251f821ee366cccdfb6b1558/d437ab3062acdfa5-d6/s1280x1920/fd91da83ee4d8aa84b1a4d9dd17b5a922dc91ef7.pnj" width="500px">
