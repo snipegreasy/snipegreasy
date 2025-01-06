@@ -21,15 +21,16 @@
     <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
   </div>
 
-<br>Please be nice to me and respect my boundaries that i make obvious.
-<br>**I am not afraid to confront or speak out to stand up for myself/others.**
+<br>𝐏𝐥𝐞𝐚𝐬𝐞 𝐛𝐞 𝐧𝐢𝐜𝐞 𝐭𝐨 𝐦𝐞 𝐚𝐧𝐝 𝐫𝐞𝐬𝐩𝐞𝐜𝐭 𝐦𝐞, 𝐈 𝐰𝐢𝐥𝐥 𝐝𝐨 𝐭𝐡𝐞 𝐬𝐚𝐦𝐞 𝐟𝐨𝐫 𝐲𝐨𝐮.
+<br>**I am not afraid to confront or speak out.**
 
-I'm in a few fandoms rn such as COD, RDR2, TWD/TWD games, MW, TLOU, DYING LIGHT, COF, UNTIL DAWN, RESIDENT GYATTS, SILENT HILL, MK, ASSASSINS CREED, TF2, INDIE HORROR GAMES!!, (this was a not a "few".)
+Fandoms im in rn!! Such as: COD, RDR2, TWD/TWD games, MW, TLOU, DYING LIGHT, COF, UNTIL DAWN, RESIDENT GYATTS, SILENT HILL, MK, ASSASSINS CREED, TF2, INDIE HORROR GAMES!! 
+(MY two favs are COD and RDR2).
 
 
-Another thing for the mouthwashing fandom.
+SOMETHINF FOR THE MOUTHWASHING FANDOM!
 <br>**Jimmy cos please int w the most caution.**
-<br><sub>Only because I'm uncomfortable with his character.</sub>
+<br><sub>because I'm uncomfortable with his character.</sub>
 
  <div>
     <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
@@ -38,7 +39,7 @@ Another thing for the mouthwashing fandom.
 **discord:** @softgreasy.
 If you need to contact me in anyway.
 
-DNI IF YOUR NAME IS **KOTO** OR **TOXSYS.** IF YOU DO BEWARE OF **CONFRONTATION.**
+DNI IF YOUR NAME IS **KOTO** OR **TOXSYS.** IF YOU DO BEWARE OF **CONFRONTATION.** If you support/friends with them feel free to BLOCK/HIDE me.
 
  <div>
     <img src="https://64.media.tumblr.com/03feb2fc7c1a440da771fcefd09d5ea5/285698a62caf6481-1f/s1280x1920/e46d340796961a581f7ebaa4a63da59b4090d375.gifv" width="500px">
