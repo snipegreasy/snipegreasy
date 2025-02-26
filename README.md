@@ -12,6 +12,7 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://softgreasy.straw.page">read me :3</a> ~ <a href="https://softgreasy.atabook.org">atabook</a>
   </div>
 ㅤsilly doodle made by me >.<
+DO NOT COPY/INSPO MY SKINS.
 
 <div align="center">
  <div>
