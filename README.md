@@ -11,7 +11,8 @@
   <div>
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://softgreasy.straw.page">read me :3</a> ~ <a href="https://softgreasy.atabook.org">atabook</a>
   </div>
-ㅤsilly doodle made by me >.<
+ㅤdnc or inspo from my ponies
+silly doodle made by me >.<
 
 <div align="center">
  <div>
