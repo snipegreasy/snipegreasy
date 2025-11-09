@@ -9,7 +9,7 @@
 ㅤ
 <div align="center">
   <div>
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://softgreasy.straw.page">read me :3</a> ~ <a href="https://softgreasy.atabook.org">atabook</a>
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://grssey.carrd.co">read me :3</a> ~ <a href="https://softgreasy.atabook.org">atabook</a>
   </div>
 ㅤask for inspo/dnc my ponies
 
